@@ -1,0 +1,1 @@
+- Hi, I’m @Isabel-SHM, I’m interested in python, which is the language that im currently learning, I would love to collaborate on simple and effective python projects! 
